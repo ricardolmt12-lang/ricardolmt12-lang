@@ -19,4 +19,4 @@ Entiendo que una gráfica no sirve de nada si no responde a una pregunta de nego
 
 ### 📫 Conecta conmigo
 - [LinkedIn](https://www.linkedin.com/in/ricardo-martinez-torres12/)
-- Email: ricardolmt12@gmail.com
+
